@@ -2,14 +2,14 @@
 title: Porcelain Throne Waterfalls
 header-img: img/new-bg.jpg
 email: nick.androul@gmail.com
-copyright_name: Your/Project/Corporate Name
+copyright_name: PorcelainThroneWaterfalls
 description: "This is meaningless, yet exists. Just like you :)."
 baseurl: "/PorcelainThroneWaterfalls"
-url: "http://yourdomain.com"
-twitter_username: SBootstrap
-github_username:  davidtmiller
-facebook_username:  StartBootstrap
-email_username:  your-email@yourdomain.com
+url:
+twitter_username:
+github_username: nickAndroulakis
+facebook_username: nick.androulakis.5
+email_username:
 
 # Google Analytics
 # To enable google analytics, uncomment below line with a valid Google Tracking ID
