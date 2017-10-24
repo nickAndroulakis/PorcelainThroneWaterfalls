@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "43rd of August and counting"
-subtitle:   "Originally posted as 'Gotta Say..."
+subtitle:   "Originally posted as 'Gotta Say...'"
 date:       2015-09-12 20:44:00
 author:     "Nick Androulakis"
 header-img: "img/post-bg-01.jpg"

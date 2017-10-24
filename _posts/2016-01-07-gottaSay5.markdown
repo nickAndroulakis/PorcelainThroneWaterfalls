@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "Xmas special"
-subtitle:   "Originally posted as 'Gotta Say..."
+subtitle:   "Originally posted as 'Gotta Say...'"
 date:       2016-01-07 19:08:00
 author:     "Nick Androulakis"
 header-img: "img/post-bg-05.jpg"

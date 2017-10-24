@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "Geneva 101"
-subtitle:   "Originally posted as 'Gotta Say..."
+subtitle:   "Originally posted as 'Gotta Say...'"
 date:       2015-09-28 02:06:00
 author:     "Nick Androulakis"
 header-img: "img/post-bg-02.jpg"
