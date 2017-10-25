@@ -8,7 +8,7 @@ header-img: "img/post-bg-01.jpg"
 ---
 
 <p>
-1. Yes pipol, I will be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets.</p>
+1. Yes _pipol_, I **will** be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets.</p>
 <p>
 2. Now that I leave Greece, I get to, finally, post in english. I can always claim that I have to do it from now on, cause of my european friends, hiding the fact, I'm just a poser and a hipster, who enjoys typing in English B|.</p>
 <p>
