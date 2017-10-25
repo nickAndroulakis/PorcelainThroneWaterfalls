@@ -7,6 +7,8 @@ author:     "Nick Androulakis"
 header-img: "img/post-bg-02.jpg"
 ---
 
+1. According to Zipf's law, 80% of the points you will find interesting in this post, will be found on 20% of the whole thing. Given the fact, this is a ten-bullet "Gotta Say", you should find them, two, and move on with your lives to be time efficient. However, this is not one of them. Sorry for wasting your time :)
+
 <p>
 1. According to Zipf's law, 80% of the points you will find interesting in this post, will be found on 20% of the whole thing. Given the fact, this is a ten-bullet "Gotta Say", you should find them, two, and move on with your lives to be time efficient. However, this is not one of them. Sorry for wasting your time :).</p>
 <p>

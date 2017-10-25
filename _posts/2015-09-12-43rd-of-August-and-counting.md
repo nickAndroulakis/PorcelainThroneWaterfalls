@@ -7,6 +7,8 @@ author:     "Nick Androulakis"
 header-img: "img/post-bg-01.jpg"
 ---
 
+1. Yes _pipol_, I **will** be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets
+
 <p>
 1. Yes _pipol_, I **will** be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets.</p>
 <p>
