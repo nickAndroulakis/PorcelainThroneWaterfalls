@@ -19,8 +19,8 @@ header-img: "img/post-bg-05.jpg"
 
 3. I am writing this last piece from my french village; yeah... back to work :/. My return to my place was interesting. I wont say I was surprised but my house was a mess. It was not dirty- well you could say that too- just things everywhere. We were accommodating friends before the holidays so we have some excuses. So let's say the inflatable bed was still there. Then, we had some big boxes in the house, after a big thomann shipment arrived just before we left for Greece- so I unwrapped and left everything there xD. Hmm what else... And some luggage in the hallway- that are not even ours. Next to them you could find some plastic bags with leftover booze from a friends party and on the right another bag with meds this time. All of them on the floor. Some laundry to be done too. Last but not least we had this specific corner, that we call, the recycling corner. There we gather paper wrappings in a huuuuuge- like humongous huge- plastic bag in order to get them eventually to the recycling bin. Because we care about the environment, then again do we? Not the point. BRAIN what was the point here? Help me out brother. Yes, yes. Point is I should do less typing and more tiding up my ecosystem so that the living organisms inside don't give up on life.
 
-7. You can read 4 again; It's exactly the same B|
+7. You can read 4 again; It's exactly the same B
 
 tl;dr -> Just some thoughts in Star Wars order. You don't have to read them. Class dismissed!
 
-Prpp out \m/</p>
+Prpp out \m/

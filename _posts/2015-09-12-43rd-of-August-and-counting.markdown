@@ -9,13 +9,13 @@ header-img: "img/post-bg-01.jpg"
 
 1. Yes pipol, I will be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets
 
-2. Now that I leave Greece, I get to, finally, post in english. I can always claim that I have to do it from now on, cause of my european friends, hiding the fact, I'm just a poser and a hipster, who enjoys typing in English B|.
+2. Now that I leave Greece, I get to, finally, post in english. I can always claim that I have to do it from now on, cause of my european friends, hiding the fact, I'm just a poser and a hipster, who enjoys typing in English B .
 
 3. I guess sharing music on social media is like sharing thoughts (well, #noShitSherlock). There will always be those who just get it and, of course, those who don't. I actually enjoy listening sad music; in a way sad music balances me out. Let's just say, pretty often "my happy is too loud" and I need to level it down xD. Point is that if you really care of what people will think of your posts, then you shouldn't post in the first place. No, it's not some heart-opening to strangers (sorry, facebook friends) ;it's some taste-sharing (you're welcome, facebook friends). After all, #sharingIsCaring.
 
 4. But, seriously, take a moment to look at the dark sky at night. Now, take a deep breath and start counting all those fucks that I give, orbiting our planet just like the Moon.
 
-5. So there's this imaginary place near Baghdad, I will be visiting from time to time, called Donethat. Of course there's Fuckthat just around the corner too. Damn, greek jokes sound way much cooler in greek #duh. However, I get to use #duh now, so that's a trade I'm, kinda, okay with B|.
+5. So there's this imaginary place near Baghdad, I will be visiting from time to time, called Donethat. Of course there's Fuckthat just around the corner too. Damn, greek jokes sound way much cooler in greek #duh. However, I get to use #duh now, so that's a trade I'm, kinda, okay with B .
 
 6. And I will quote one of my sisters(I'm not throwing people under the bus) at this point: "How does gPhotos categorize my photos as food or flowers? Is there an employee, whose job is to do so?" :D :D. #howStuffWorks #blackMagic
 
