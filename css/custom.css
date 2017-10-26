@@ -8,11 +8,12 @@
     background-color: rgba(235, 235, 235, 0.80);
     font-size: 12px;
     padding: 1em;
-   
+    font-family: sans-serif;
+
 }
 
 .back-to-top:hover {
     background-color: rgba(135, 135, 135, 0.50);
-    text-decoration:none;
+    text-decoration: none;
     color:#ffffff;
 }
