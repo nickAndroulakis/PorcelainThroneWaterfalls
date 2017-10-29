@@ -7,9 +7,6 @@ author:     "Nick Androulakis"
 header-img: "img/post-bg-01.jpg"
 ---
 
-Yes pipol, I will be doing this thingie, my sister does. I even copied the title just to salute her style. It’s not personal, Nassia. It’s strictly business #GodfatherQuotes. Oh, there's no going back now #copyCat #noRegrets
-
-___
 Now that I leave Greece, I get to, finally, post in english. I can always claim that I have to do it from now on, cause of my european friends, hiding the fact, I'm just a poser and a hipster, who enjoys typing in English.
 
 ___
@@ -35,9 +32,6 @@ There is a lot of selfishness involved in expecting people to laugh at your joke
 
 ___
 In case you want to give feedback on this thingie, I give you this riddle to solve. "What has two thumbs and doesn't give a crap?" Well, it's not Sir Jaime Lannister, that's for sure. #spoilerAlert
-
-___
-Will there be an easter egg in this post? I don't know #obviousLie. In case there is, though, the code to find it should be this one: 12~0~28~27~0~0~28~0~0~26~0. This one is easy. You are smart kids, you'll figure it out. #nextLevel.
 
 ___
 tl;dr -> Read the damn thing, Jesus -it's not water. you can't just go over it-. Same thing applies to everyone, not just the #randomJesusOnMyFriendlist.
